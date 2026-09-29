@@ -1,3 +1,3 @@
 ## Write your fullname
-John kenneth P. Lucero
-# sample
+Princess Joy A Paclibar
+#sample
